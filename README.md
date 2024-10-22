@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌏 Born on Indonesia<br>🎂 Birthday on 19 April 2007<br>🏫 Currently studying at High School<br><br>🌱 Currently Learning<br>> HTML<br>> CSS<br>> Javascript<br>> Database<br>(Still a complete beginner)<br><br>📃 Talent<br>> Graphic Design<br>> Video Editor<br>> Professional Gamer<br>> Professional Manga / Manwha reader<br>> Professional Anime Watcher
+🌏 Born on Indonesia<br>🎂 Birthday on 19 April 2007<br>🏫 Currently studying at High School<br><br>🌱 Currently Learning<br>> HTML<br>> CSS<br>> Javascript<br>> Database<br>(Still a complete beginner)<br><br>📃 Talent<br>> Graphic Designer<br>> Video Editor<br>> Professional Gamer<br>> Professional Manga / Manwha reader<br>> Professional Anime Watcher
 
 
 ## 🌐 Socials:
